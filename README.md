@@ -50,6 +50,10 @@ CalculImpotLocal/
 
 
 
+https://github.com/user-attachments/assets/2651bc3e-0a11-4c95-854b-f58fdd9413e5
+
+
+
 ## Encadrement &  Auteur
 **Encadre par**:Mr.LACHGAR mohammed
 <br>
